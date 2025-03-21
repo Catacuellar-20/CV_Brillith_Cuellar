@@ -10,7 +10,7 @@
 - **LinkedIn:** https://www.linkedin.com/in/brillith-catalina-cuellar-15a44b337?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 ## 🏢 Experiencia Laboral
-### **Empresa GAS JEANS S.A.S.** _(Noviembre 2015-2019)_
+### **Empresa GAS JEANS S.A.S.** _(Noviembre 2015 - 2019)_
 - **Patronista de prendas de vestir**: Creación de patrones de moda, escalado y trazo de referencias, creación de fichas técnicas.
 
 ### **Idimoda S.A.S.** _(Septiembre 2020 - Abril 2022 )_
