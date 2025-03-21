@@ -3,6 +3,7 @@
 
 ## Brillith Catalina Cuellar Sosa
 **Profesión:** _Diseñadora de Modas_
+
 Poseo amplio conocimiento en el área de patronaje, procesos de producción y diseño. Poseo conocimiento en fichas técnica, dibujo plano, trazo de producción y muestras, dirección de muestras, dirección de producción, auditoría y manejo de piezas gráficas para estampado. Cuento con cualidades personales y laborales enmarcadas en la organización, con cumplimiento de las funciones asignadas, dinámica, eficiente, buenas relaciones interpersonales y responsable. 
 
 ## 📞 Contacto
