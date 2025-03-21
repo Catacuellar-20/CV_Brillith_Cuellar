@@ -17,7 +17,7 @@
 - **Directora de produccción y Patronista**: Creación de patrones de moda, escalado y trazode referencias, creación de fichas técnicas, dirección de muestras, auditoria en taller, corte de muestras.
 
 ## 🎓 Educación
-### ** Profesional en Diseño de modas** _(2019 - 2023)_
+### **Profesional en Diseño de modas** _(2019 - 2023)_
 - Universidad ECCI
 ### **Tecnólogo en Gestión de Mercados** _(Noviembre 2023 - 2025)_
 - SENA
