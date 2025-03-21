@@ -1,17 +1,17 @@
 # CV_Example
 # Hoja de Vida
 
-## Nombre Completo
-**Profesión:** _Tu profesión_
+## Brillith Catalina Cuellar Sosa
+**Profesión:** _Diseñadora de Modas_
 
 ## 📞 Contacto
-- **Teléfono:** +57 123 456 7890
-- **Email:** [correo@ejemplo.com](mailto:correo@ejemplo.com)
-- **LinkedIn:** [linkedin.com/in/tuusuario](https://linkedin.com/in/tuusuario)
+- **Teléfono:** ---
+- **Email:** cuellarcata20@gmail.com
+- **LinkedIn:**https://www.linkedin.com/in/brillith-catalina-cuellar-15a44b337?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 ## 🏢 Experiencia Laboral
-### **Empresa XYZ** _(2020 - Actualidad)_
-- Puesto ocupado y descripción breve.
+### **Empresa GAS JEANS S.A.S.** _(NOVIEMBRE 2015-2019)_
+- Patronista de prendas de vestir: Creación de patrones de dis.
 
 ### **Empresa ABC** _(2018 - 2020)_
 - Puesto ocupado y descripción breve.
