@@ -1,4 +1,4 @@
-# CV_Brillith Catalina Cuellar Sosa
+# CV_Brillith_Catalina_Cuellar_Sosa
 # Hoja de Vida
 
 ## Brillith Catalina Cuellar Sosa
