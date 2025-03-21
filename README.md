@@ -3,8 +3,24 @@
 
 ## Brillith Catalina Cuellar Sosa
 **Profesión:** _Diseñadora de Modas_
+Soy un profesional con una trayectoria que fusiona el diseño estratégico y el mercadeo con una profunda comprensión de la producción textil. Mi experiencia abarca desde la creación de diseños innovadores hasta la gestión integral de procesos productivos, con un enfoque constante en la optimización y la calidad.
 
-Poseo amplio conocimiento en el área de patronaje, procesos de producción y diseño. Poseo conocimiento en fichas técnica, dibujo plano, trazo de producción y muestras, dirección de muestras, dirección de producción, auditoría y manejo de piezas gráficas para estampado. Cuento con cualidades personales y laborales enmarcadas en la organización, con cumplimiento de las funciones asignadas, dinámica, eficiente, buenas relaciones interpersonales y responsable. 
+Mi especialización se centra en la intersección del diseño y el mercadeo, donde desarrollo estrategias creativas que impulsan el valor de las marcas. Mis habilidades incluyen:
+
+* **Diseño Innovador:** Creación de diseños que responden a las tendencias del mercado y las necesidades del consumidor.
+* **Gestión de Procesos Productivos:** Optimización de cada etapa de la producción textil, desde el patronaje hasta la auditoría.
+* **Documentación Técnica:** Elaboración y manejo de fichas técnicas, dibujos planos y trazos de producción.
+* **Mercadeo Estratégico:** Desarrollo de estrategias de mercadeo que comunican eficazmente el valor de los productos.
+* **Diseño Gráfico para Estampado:** Creación de piezas gráficas que aportan valor estético y comercial a las prendas.
+
+Mi enfoque se basa en la combinación de habilidades técnicas y creativas, lo que me permite:
+
+* Comprender las dinámicas del mercado y las necesidades del consumidor.
+* Desarrollar diseños que se alinean con los objetivos de mercadeo.
+* Garantizar la calidad y eficiencia en cada etapa del proceso productivo.
+
+Me caracterizo por ser una persona organizada, dinámica, eficiente y con excelentes relaciones interpersonales. Mi compromiso con la excelencia y la innovación me impulsa a buscar constantemente nuevas formas de aportar valor en el ámbito del diseño y el mercadeo.
+
 
 ## 📞 Contacto
 - **Teléfono:** ---
