@@ -11,16 +11,14 @@
 
 ## 🏢 Experiencia Laboral
 ### **Empresa GAS JEANS S.A.S.** _(NOVIEMBRE 2015-2019)_
-- Patronista de prendas de vestir: Creación de patrones de moda, escalado y trazode referencias, creación de fichas técnicas.
+- **Patronista de prendas de vestir**: Creación de patrones de moda, escalado y trazo de referencias, creación de fichas técnicas.
 
 ### **Idimoda S.A.S.** _(Septiembre 2020 - Abril 2022 )_
-- Dirección de produccción y Patronista: Creación de patrones de moda, escalado y trazode referencias, creación de fichas técnicas, dirección de muestras, auditoria en taller, corte de muestras.
+- **Directora de produccción y Patronista**: Creación de patrones de moda, escalado y trazode referencias, creación de fichas técnicas, dirección de muestras, auditoria en taller, corte de muestras.
 
 ## 🎓 Educación
 ### ** Profesional en Diseño de modas** _(2019 - 2023)_
 - Universidad ECCI
-
-## 🎓 Educación
 ### **Tecnólogo en Gestión de Mercados** _(Noviembre 2023 - 2025)_
 - SENA
 
