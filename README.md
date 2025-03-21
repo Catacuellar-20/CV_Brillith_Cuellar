@@ -7,7 +7,7 @@
 ## 📞 Contacto
 - **Teléfono:** ---
 - **Email:** cuellarcata20@gmail.com
-- **LinkedIn:**https://www.linkedin.com/in/brillith-catalina-cuellar-15a44b337?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- **LinkedIn:** https://www.linkedin.com/in/brillith-catalina-cuellar-15a44b337?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 ## 🏢 Experiencia Laboral
 ### **Empresa GAS JEANS S.A.S.** _(NOVIEMBRE 2015-2019)_
