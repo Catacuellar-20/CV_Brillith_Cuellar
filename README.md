@@ -9,7 +9,7 @@ Poseo amplio conocimiento en el área de patronaje, procesos de producción y di
 ## 📞 Contacto
 - **Teléfono:** ---
 - **Email:** [cuellarcata20@gmail.com](mailto:cuellarcata20@gmail.com)
-- **LinkedIn:** [LinkedIn Brillith Cuellar].(https://www.linkedin.com/in/brillith-catalina-cuellar-15a44b337/).
+- **LinkedIn:** [LinkedIn Brillith Cuellar](https://www.linkedin.com/in/brillith-catalina-cuellar-15a44b337/).
 
 ## 🏢 Experiencia Laboral
 ### **Empresa GAS JEANS S.A.S.** _(Noviembre 2015 - 2019)_
