@@ -4,7 +4,7 @@
 ## Brillith Catalina Cuellar Sosa
 **Profesión:** _Diseñadora de Modas_
 
-Soy un profesional con una trayectoria que fusiona el diseño estratégico y el mercadeo con una profunda comprensión de la producción textil. Mi experiencia abarca desde la creación de diseños innovadores hasta la gestión integral de procesos productivos, con un enfoque constante en la optimización y la calidad.
+Soy un profesional con una trayectoria que fusiona el diseño y el mercadeo con una profunda comprensión de la producción textil. Mi experiencia abarca desde la creación de diseños innovadores hasta la gestión integral de procesos productivos, con un enfoque constante en la optimización y la calidad.
 
 Mi especialización se centra en la intersección del diseño y el mercadeo, donde desarrollo estrategias creativas que impulsan el valor de las marcas. Mis habilidades incluyen:
 
